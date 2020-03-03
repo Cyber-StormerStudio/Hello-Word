@@ -1,2 +1,2 @@
 # Hello-Word
-Sei la
+Meu Nome é Eduardo Tenho 13 anos e quero criar jogos
